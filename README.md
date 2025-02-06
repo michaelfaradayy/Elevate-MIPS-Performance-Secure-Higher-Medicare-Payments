@@ -3,7 +3,7 @@ In today's rapidly changing healthcare landscape, ensuring that your practice is
 # Elevate MIPS Performance: Secure Higher Medicare Payments
 
 ## Introduction
-In today's healthcare landscape, understanding the **Merit-Based Incentive Payment System (MIPS)**[https://www.imagnumhealthcare.com/places/mips-in-intervale-carroll-new-hampshire
+In today's healthcare landscape, understanding the **Merit-Based Incentive Payment System (MIPS)**-[https://www.imagnumhealthcare.com/places/mips-in-intervale-carroll-new-hampshire
 ]![image](https://github.com/user-attachments/assets/f002b247-2e1f-4f00-9895-c6ab196c22cb)
  is crucial for healthcare providers to ensure they are properly reimbursed by Medicare. At **iMagnum Healthcare Solution**, we specialize in **MIPS Consulting Services** to help practices improve their performance and secure higher Medicare payments.
 
